@@ -1,2 +1,0 @@
-# shuibakhthar.github.io
-summa
